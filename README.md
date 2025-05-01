@@ -2,7 +2,7 @@
 - Full Stack Software Engineer
 
 ## 📫 Let’s Connect!
-- 💼 [LinkedIn](https://linkedin.com/in/ethan-crayton-9693a12bb)  
+- 💼 [LinkedIn](www.linkedin.com/in/dennis-crayton)  
 - 📧 ethanc.xyz@gmail.com
 
 ### 🌟 Projects are listed below!
